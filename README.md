@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Anuradha M 
 - 👀 I’m interested in ...Reading traveling 
-- 🌱 I’m currently learning ...Data science 
+- 🌱 I’m currently working on Data science projects 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...anuradhaanu301@gmail.com 
+- 📫 How to reach me ...anuradhaanu301@gmail.com  6362731672
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...😀
 
