@@ -3,7 +3,7 @@
 - 🌱 I’m currently working on Data science projects 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...anuradhaanu301@gmail.com  6362731672
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...Anu
 - ⚡ Fun fact: ...😀
 
 <!---
